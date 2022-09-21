@@ -1,0 +1,1 @@
+1. When doing strength training, there are three variables you can play with: intensity(concentration), volume(dosage), and frequency(how often). 
